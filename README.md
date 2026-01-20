@@ -85,7 +85,7 @@ src="https://mrfrankk-cdn.hf.space/media/repo.png">
 
 - This bot is made for educational purposes `only` hence `DO NOT MISUSE`.
 
-> `POWERED BY MR FRANK OFC 🇿🇼`
+> `POWERED BY MR KASTHURI OFC 🇱🇰`
 ##
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/>
